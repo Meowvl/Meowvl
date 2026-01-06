@@ -25,3 +25,8 @@
 <p><img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/fc8c27af-948d-4135-8367-c6fba341af76" />
 ╰┈➤ C+H always even if i don't have it in my name, like yes come cuddle w me<3
 </p>
+
+<p><img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/7ecfa59e-c42d-48c4-80cc-2b666157acee" /> <img width="250" height="33" alt="image" src="https://github.com/user-attachments/assets/2abbac34-1edb-4f13-838d-3c334062dcad" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/d656a2cb-c901-4f64-8b0c-b0cce124520f" /><img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/84454c79-7c45-4c1f-9988-b08c1544dcd9" />
+<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/651fa48d-bf5f-42bc-a673-a79962799bbd" />
+
