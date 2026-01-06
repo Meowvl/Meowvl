@@ -10,4 +10,18 @@
 
 <img width="3072" height="3072" alt="image" src="https://github.com/user-attachments/assets/d2d43124-283d-4382-aa39-dceb56be7561" />
 
- &emsp; &emsp; &emsp; &emsp; <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/99bb0a0c-94cc-4a29-84c6-9de99f019161" />
+
+<p><img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/53a83b20-b3f1-4342-9371-e89e6af2f55e" />
+╰┈➤ Pl/Eng<p>
+
+
+
+<p><img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/f2692966-e5e0-450e-8ec6-d163ec7b54fe" />
+╰┈➤ often offtab/afk so please whisper!</p>
+
+<p><img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/c2c5eeee-8bef-4088-8840-ca61a86320ac" />
+╰┈➤ I love making new friends</p>
+
+<p><img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/fc8c27af-948d-4135-8367-c6fba341af76" />
+╰┈➤ C+H always even if i don't have it in my name, like yes come cuddle w me<3
+</p>
